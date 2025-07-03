@@ -1,1 +1,1 @@
-![madhav e-commerce sales dashboard](https://github.com/user-attachments/assets/7debc24b-ede0-42df-8bdd-d69f60b1a862)
+![madhav_dashboard](https://github.com/user-attachments/assets/55d7daee-3e48-4297-b232-472946a404b2)
